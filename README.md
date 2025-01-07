@@ -2,7 +2,7 @@
 - 👀 I’m interested in staying alive (wow sound effect)
 - 🌱 I’m currently learning stuff (ik mind blown)
 - 💞️ I’m looking to collaborate on idk im new here
-- 📫 How to reach me ... you don't mwah ha ha ha ha
+- 📫 How to reach me ... you don't (insert evil laugh)  (no i am not paid enough for this)
 - 😄 Pronouns: ... why should i tell you thats kinda wierd ngl
 - ⚡ Fun fact: ... there is none :)
 
