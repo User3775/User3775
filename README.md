@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning stuff (ik mind blown)
 - 💞️ I’m looking to collaborate on idk im new here
 - 📫 How to reach me ... you don't (insert evil laugh)  (no i am not paid enough for this)
-- 😄 Pronouns: ... why should i tell you thats kinda wierd ngl
+- 😄 Pronouns: ... i dont want to tell yall
 - ⚡ Fun fact: ... there is none :)
 
 <!---
